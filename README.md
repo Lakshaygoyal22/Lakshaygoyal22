@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - @OSSDAO-ORG•AIRDROP-0x42659d62b2ECB7Ed22114A27d06CEC7c457bcC12
+- @OSSDAO-ORG•AIRDROP-0x42659d62b2ECB7Ed22114A27d06CEC7c457bcC12
 <!---
 Lakshaygoyal22/Lakshaygoyal22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
